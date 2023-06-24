@@ -1,0 +1,3 @@
+Experienced Cloud Architect & Big Data Hadoop Professional having 16+ Years of experience in Retail/Investment Banking Domain and Data Security Administration Domain.
+I have performed different roles in IT industry which includes Planning, design, requirement gathering, coding/testing and implementation. My responsibilities also covers technical management, team management, Onsite Coordination pre/post Implementation of projects and technical support.
+Solutions-oriented professional IT consultant who excels at managing projects, collaborating with project teams, interfacing with clients and deploying technology to build successful solutions for clients.
